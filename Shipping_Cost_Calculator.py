@@ -1,5 +1,5 @@
 # Here is a new update by issaniang17
-# Here is another update by issaniang17
+# Here is another updated often by issaniang17
 # Shipping Cost Calculator
 
 # Here is a new update by issaniang17
